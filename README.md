@@ -1,6 +1,6 @@
-[![instagram](https://img.shields.io/badge/CONTACT-TELEGRAM-blue)](https://t.me/TeamDarkAnon)
+[![instagram](https://img.shields.io/badge/CONTACT-TELEGRAM-blue)](https://t.me/gtxprime)
 
-[![instagram](https://img.shields.io/badge/CONTACT-INSTAGRAM-red)](https://instagram.com)
+[![instagram](https://img.shields.io/badge/CONTACT-INSTAGRAM-red)](https://instagram.com/gtxprime)
 
 #                     TELE RAT
 
